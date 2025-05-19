@@ -30,4 +30,4 @@ Whether you're a professional technician, an industrial contractor, or a homeown
 <li>Facebook: https://www.facebook.com/manximpex/</li>
 <li>Our Youtube Channel: https://www.youtube.com/@ManxImpex/featured</li>
 <h3>Our Blog:</h3>
-<h5>Top 10 Fire safety tips for homeowners</h5>
+<h5>Top 10 Fire safety tips for homeowners: https://manximpex.com/fire-safety-tips-for-homeowners/ </h5>
