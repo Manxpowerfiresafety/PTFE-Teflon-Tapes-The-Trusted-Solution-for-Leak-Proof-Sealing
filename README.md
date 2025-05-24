@@ -20,8 +20,8 @@ ManxImpex <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Teflon
 <h3>Available Sizes and Customization</h3>
 ManxImpex offers PTFE Teflon tapes in various widths, thicknesses, and lengths to suit different requirements. Custom packaging and branding options are also available for distributors and OEM clients.<br>
 <h3>Compliant and Safe</h3>
-All PTFE tapes from ManxImpex are manufactured to meet international safety and performance standards, such as ASTM and ISO, ensuring that every roll delivers dependable results.<br>
-<h3>Conclusion</h3>
+All PTFE tapes from ManxImpex are manufactured to meet international safety and performance standards, such as ASTM and ISO, ensuring that every roll delivers dependable results.<br><br>
+
 Whether you're a professional technician, an industrial contractor, or a homeowner working on a plumbing project <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Teflon Tape" alt"PTFE Teflon Tape">PTFE Teflon Tape</a> by ManxImpex offers the perfect balance of reliability, ease of use, and performance. With excellent chemical resistance, thermal stability, and sealing power, it’s the smart choice for leak-proof connections.<br>
 <li>Website: https://manximpex.com/ptfe-teflon-tape-2/</li>
 <li>Contact Number: +91- 7428115550, +91- 7065192900</li>
