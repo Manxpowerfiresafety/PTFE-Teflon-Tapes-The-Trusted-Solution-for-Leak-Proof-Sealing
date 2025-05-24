@@ -22,14 +22,14 @@ ManxImpex offers PTFE Teflon tapes in various widths, thicknesses, and lengths t
 <h3>Compliant and Safe</h3>
 All PTFE tapes from ManxImpex are manufactured to meet international safety and performance standards, such as ASTM and ISO, ensuring that every roll delivers dependable results.<br><br>
 
-Whether you're a professional technician, an industrial contractor, or a homeowner working on a plumbing project <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Teflon Tape" alt"PTFE Teflon Tape">PTFE Teflon Tape</a> by ManxImpex offers the perfect balance of reliability, ease of use, and performance. With excellent chemical resistance, thermal stability, and sealing power, it’s the smart choice for leak-proof connections.<br>
+Whether you're a professional technician, an industrial contractor, or a homeowner working on a plumbing project <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Teflon Tape" alt"PTFE Teflon Tape" >PTFE Teflon Tape</a> by ManxImpex offers the perfect balance of reliability, ease of use, and performance. With excellent chemical resistance, thermal stability, and sealing power, it’s the smart choice for leak-proof connections.<br>
 <li>Website: https://manximpex.com/ptfe-teflon-tape-2/</li>
 <li>Contact Number: +91- 7428115550, +91- 7065192900</li>
 <li>E-mail: info@manximpex.com</li>
 <li>Instagram: https://www.instagram.com/manximpex/</li>
 <li>Facebook: https://www.facebook.com/manximpex/</li>
 <li>Our Youtube Channel: https://www.youtube.com/@ManxImpex/featured</li>
-<h3>Our Blog:</h3>
+<h3>Related Blog:</h3>
 <ul><li><a href="https://manximpex.com/fire-safety-tips-for-homeowners/">Top 10 Fire safety tips for homeowners</a></li>
 <li><a href="https://manximpex.com/common-fire-extinguisher-myths-debunked/">Common Fire Extinguisher Myths: Debunking Misconceptions about Fire Safety</a></li>
 <li><a href="https://manximpex.com/hose-clamps-india/"> Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation</a></li>
