@@ -11,7 +11,7 @@ Premium Grade Material: Made from 100% virgin PTFE for excellent sealing capabil
 <li>Non-Flammable: PTFE is inherently non-flammable, adding an extra layer of safety in critical environments.</li>
 <li>Easy to Apply: The tape tears easily by hand and conforms well to threads without bunching or tearing.</li>
 <h3>Applications</h3>
-ManxImpex <a href="https://manximpex.com/ptfe-teflon-tape-2/" title="PTFE Teflon Tape" alt="PTFE Teflon Tape">PTFE tapes</a> are widely used across various industries:<br>
+ManxImpex <a href="https://manximpex.com/ptfe-teflon-tape-2/" alt="PTFE Teflon Tape" title="PTFE Teflon Tape" />PTFE tapes</a> are widely used across various industries:<br>
 <li>Plumbing: To seal threaded pipe joints in water supply and drainage systems.</li>
 <li>Oil & Gas: For reliable sealing in pipelines and fittings exposed to harsh chemicals and high pressures.</li>
 <li>HVAC Systems: To ensure airtight connections in heating and cooling systems.</li>
