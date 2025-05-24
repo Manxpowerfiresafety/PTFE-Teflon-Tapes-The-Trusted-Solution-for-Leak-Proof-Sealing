@@ -30,8 +30,8 @@ Whether you're a professional technician, an industrial contractor, or a homeown
 <li>Facebook: https://www.facebook.com/manximpex/</li>
 <li>Our Youtube Channel: https://www.youtube.com/@ManxImpex/featured</li>
 <h3>Our Blog:</h3>
-<h5><a href="https://manximpex.com/fire-safety-tips-for-homeowners/">Top 10 Fire safety tips for homeowners</a></h5>
-<a href="https://manximpex.com/common-fire-extinguisher-myths-debunked/">Common Fire Extinguisher Myths: Debunking Misconceptions about Fire Safety</a><br>
-<a href="https://manximpex.com/hose-clamps-india/"> Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation</a><br>
-<a href="https://manximpex.com/fire-evacuation-plan/">How to Create an Effective Fire Evacuation Plan for Your Business</a><br>
-<a href="https://manximpex.com/benefits-of-installing-sprinkler-system/">The Benefits of Installing Sprinkler Systems in Residential Properties</a>
+<ul><li><a href="https://manximpex.com/fire-safety-tips-for-homeowners/">Top 10 Fire safety tips for homeowners</a></li>
+<li><a href="https://manximpex.com/common-fire-extinguisher-myths-debunked/">Common Fire Extinguisher Myths: Debunking Misconceptions about Fire Safety</a></li>
+<li><a href="https://manximpex.com/hose-clamps-india/"> Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation</a></li>
+<li><a href="https://manximpex.com/fire-evacuation-plan/">How to Create an Effective Fire Evacuation Plan for Your Business</a></li>
+<li><a href="https://manximpex.com/benefits-of-installing-sprinkler-system/">The Benefits of Installing Sprinkler Systems in Residential Properties</li></ul>
